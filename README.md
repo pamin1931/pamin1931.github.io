@@ -1,0 +1,1 @@
+# pamin1931.github.io
